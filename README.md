@@ -70,8 +70,4 @@
 
 
 
-
-
-
-
-JaSgUe
+HBNR2
